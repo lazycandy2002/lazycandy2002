@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lazycandy2002
+- 👋 Hi, I’m Jared 
 - 👀 I’m interested in coding syempre
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on sa gusto mo collab..
